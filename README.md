@@ -1,3 +1,3 @@
-# itsme hyowon
+# itsmehyowon
 ## 😀😀😀
 [itsmehyowon](https://github.com/itsmehyowon) 
